@@ -7,7 +7,7 @@ But I Will Be The One You Needㅤ‎ ‎ ‎ . ‎ ‎ . ‎ ‎ .
 <table>
   <tr>
     <td>
-      ㆍㅤ₊ ֹㅤ e𓐇ㅤ 𓏼
+      ㆍㅤ₊ ֹㅤ <img src="https://i.postimg.cc/6qJZ84PH/IMG-6772.webp" width="15">𓐇ㅤ 𓏼
       <br>
       <img src="https://i.postimg.cc/XqNKYbF7/Untitled1568-20260705213915.png" width="35">
         ‎ ᵒᵘ ‎ 𝓡icari
@@ -34,7 +34,7 @@ But I Will Be The One You Needㅤ‎ ‎ ‎ . ‎ ‎ . ‎ ‎ .
       <br>
     </td>
     <td>
-   ‎ ‎𓏼 ‎  ˚ ‎ ‎ ‎ e𓏬 ‎ ‎ ‎‎  ˖ ‎ ‎ ‎‎  ׁ ͚ 
+   ‎ ‎𓏼 ‎  ˚ ‎ ‎ ‎ <img src="https://i.postimg.cc/0jRSzK4V/IMG-6775.gif" width="17">𓏬 ‎ ‎ ‎‎  ˖ ‎ ‎ ‎‎  ׁ ͚ 
       <br>
 text
                  <br>
