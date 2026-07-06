@@ -41,9 +41,17 @@ But I Will Be The One You Needㅤ‎ ‎ ‎ . ‎ ‎ . ‎ ‎ .
     <td>
    ‎ ‎𓏼 ‎  ˚ ‎ ‎ ‎ <img src="https://i.postimg.cc/0jRSzK4V/IMG-6775.gif" width="17">𓏬 ‎ ‎ ‎‎  ˖ ‎ ‎ ‎‎  ׁ ͚ 
       <br>
-text
+<a href="https://milkshuake.straw.page/">
+  <img src="https://i.postimg.cc/fRrp6MFp/Untitled1569-20260705233355.png" width="110">
+</a>
                  <br>
+      <a href="https://rentry.co/pxg">
+  <img src="https://i.postimg.cc/fRrp6Mpn/Untitled1569-20260705233455.png" width="110">
+</a>
                  <br>
+            <a href="https://yuji.atabook.org/">
+  <img src="https://i.postimg.cc/sgNqt3qz/Untitled1569-20260705233519.png" width="110">
+</a>
                  <br>
                  <br>
                        <br>
