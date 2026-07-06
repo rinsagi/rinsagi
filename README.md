@@ -22,7 +22,7 @@ But I Will Be The One You Needㅤ‎ ‎ ‎ . ‎ ‎ . ‎ ‎ .
     <br>
       fanatic ‎ ‎₍•⩊ •マ
       <br>
-      ☕ ‎ ‎  afro ‎‎𝗹𝗮𝘁𝗶𝗻𝗼
+      ☕ ‎ ‎ afro ‎‎𝗹𝗮𝘁𝗶𝗻𝗼
       <br>
     </td>
     <td align="center">
