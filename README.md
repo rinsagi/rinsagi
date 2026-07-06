@@ -14,7 +14,7 @@ But 𝐈 Will Be The One 𝐘𝐨𝐮 Need ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎. ‎ 
       <br>
       <img src="https://i.postimg.cc/XqNKYbF7/Untitled1568-20260705213915.png" width="35">
         ‎ ᵒᵘ ‎ 𝓡icari
-<br> h̲e a̲ny ‎ ‎  🥞 ‎ ‎ 𝟙𝟞
+<br> h̲e a̲ny ‎ ‎  🃏 ‎ ‎ 𝟙𝟞
       <br>
       ‎▓▒▒░░░░▒▒▓
     <br>
