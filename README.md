@@ -26,7 +26,7 @@ But I Will Be The One You Needㅤ‎ ‎ ‎ . ‎ ‎ . ‎ ‎ .
       <br>
     </td>
     <td align="center">
-      <img src="https://i.postimg.cc/sxTsWpNq/IMG-6760.gif" width="99">
+      <img src="https://i.postimg.cc/sxTsWpNq/IMG-6760.gif" width="95">
     </td>
   </tr>
 
@@ -38,7 +38,7 @@ But I Will Be The One You Needㅤ‎ ‎ ‎ . ‎ ‎ . ‎ ‎ .
 
   <tr>
     <td align="center">
-      <img src="https://i.postimg.cc/NFdBX1zZ/IMG-6759.gif" width="99">
+      <img src="https://i.postimg.cc/NFdBX1zZ/IMG-6759.gif" width="95">
       <br>
     </td>
     <td>
