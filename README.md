@@ -4,7 +4,7 @@
 <div align="center">
 <img src="https://i.postimg.cc/J0pMXbFr/Untitled1567-20260705200514.png" width="270">
 <br>
-But I Will Be The One You Need ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ . ‎ ‎ . ‎ ‎ .
+But I Will Be The One You Need ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎. ‎ ‎ ‎ . ‎ ‎ ‎ .
 <br>
   <br>
 <table>
@@ -59,7 +59,7 @@ But I Will Be The One You Need ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ . ‎ ‎ . ‎ �
     </td>
   </tr>
 </table>
-. ‎ ‎ . ‎ ‎ . ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ The Way I Cant Be Without You
+. ‎ ‎ ‎ . ‎ ‎ ‎ . ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎The Way I Cant Be Without You
 <br>
 <img src="https://i.postimg.cc/sxTsWpLf/Untitled1567-20260705200445.png" width="270">
 
