@@ -20,7 +20,7 @@ But I Will Be The One You Needㅤ‎ ‎ ‎ . ‎ ‎ . ‎ ‎ .
     <br>
       persona ﹠ bllk
     <br>
-      fanatic ‎‎‎ฅ₍•⩊ •マ
+      fanatic  ‎‎‎ฅ₍•⩊ •マ
       <br>
       ☕ ‎ ‎  afro ‎ ‎latino
       <br>
