@@ -14,7 +14,7 @@ But I Will Be The One You Needㅤ‎ ‎ ‎ . ‎ ‎ . ‎ ‎ .
       <br>
       <img src="https://i.postimg.cc/XqNKYbF7/Untitled1568-20260705213915.png" width="35">
         ‎ ᵒᵘ ‎ 𝓡icari
-<br> 𝒽e 𝒶ny ‎ ‎  🥞 ‎ ‎  𝟙𝟞
+<br> h̲e a̲ny ‎ ‎  🥞 ‎ ‎  𝟙𝟞
       <br>
       ‎▓▒▒░░░░▒▒▓
     <br>
@@ -22,7 +22,7 @@ But I Will Be The One You Needㅤ‎ ‎ ‎ . ‎ ‎ . ‎ ‎ .
     <br>
       fanatic ‎ ‎  ₍•⩊ •マ
       <br>
-      ☕ ‎ ‎  afro ‎ ‎latino
+      ☕ ‎ ‎  afro ‎ ‎𝗹𝗮𝘁𝗶𝗻𝗼
       <br>
     </td>
     <td align="center">
@@ -32,7 +32,7 @@ But I Will Be The One You Needㅤ‎ ‎ ‎ . ‎ ‎ . ‎ ‎ .
 
   <tr>
     <td colspan="2">
-      Long Box ouuuuuuuuuu shi
+<img src="https://i.postimg.cc/tTfyXhYm/Untitled1570-20260706004535.png" width="252">
     </td>
   </tr>
 
