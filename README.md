@@ -1,3 +1,6 @@
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=rinsagi&color=4D5053&style=flat-square&label=shuake&base=2144&abbreviated=true">
+</p>
 <div align="center">
 <img src="https://i.postimg.cc/J0pMXbFr/Untitled1567-20260705200514.png" width="250">
 <br>
