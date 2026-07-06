@@ -4,13 +4,13 @@
 <div align="center">
 <img src="https://i.postimg.cc/J0pMXbFr/Untitled1567-20260705200514.png" width="270">
 <br>
-But I Will Be The One You Needㅤ‎ ㅤ‎ ‎‎ ‎ . ‎ ‎ . ‎ ‎ .
+But I Will Be The One You Need ‎ ‎ ‎ ‎ ‎ ‎ . ‎ ‎ . ‎ ‎ .
 <br>
   <br>
 <table>
   <tr>
     <td>
-      ㆍㅤ₊ ֹㅤ <img src="https://i.postimg.cc/6qJZ84PH/IMG-6772.webp" width="15">𓐇ㅤ 𓏼
+      ㆍ ‎ ₊ ֹㅤ <img src="https://i.postimg.cc/6qJZ84PH/IMG-6772.webp" width="15">𓐇 ‎ ‎ ‎ ‎ ‎ 𓏼
       <br>
       <img src="https://i.postimg.cc/XqNKYbF7/Untitled1568-20260705213915.png" width="35">
         ‎ ᵒᵘ ‎ 𝓡icari
@@ -59,7 +59,7 @@ But I Will Be The One You Needㅤ‎ ㅤ‎ ‎‎ ‎ . ‎ ‎ . ‎ ‎ .
     </td>
   </tr>
 </table>
-. ‎ ‎ . ‎ ‎ . ㅤ‎ ‎ㅤ‎ ‎ The Way I Cant Be Without You
+. ‎ ‎ . ‎ ‎ . ‎ ‎ ‎ ‎ ‎ ‎ The Way I Cant Be Without You
 <br>
 <img src="https://i.postimg.cc/sxTsWpLf/Untitled1567-20260705200445.png" width="270">
 
