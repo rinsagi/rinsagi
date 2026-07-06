@@ -11,7 +11,7 @@ But I Will Be The One You Needㅤ‎ ‎ ‎ . ‎ ‎ . ‎ ‎ .
       <br>
       <img src="https://i.postimg.cc/XqNKYbF7/Untitled1568-20260705213915.png" width="35">
         ‎ ᵒᵘ ‎ 𝓡icari
-<br> he any ‎ ‎ (__) 16
+<br> he any ‎ ‎  🥞 ‎ ‎  16
       <br>
       ‎▓▒▒░░░░▒▒▓
     <br>
@@ -19,7 +19,7 @@ But I Will Be The One You Needㅤ‎ ‎ ‎ . ‎ ‎ . ‎ ‎ .
     <br>
       fanatic ‎ ‎ ‎ (______)
       <br>
-      afro latino
+      ☕ ‎ ‎  afro ‎ ‎latino
       <br>
     </td>
     <td align="center">
@@ -52,8 +52,6 @@ But I Will Be The One You Needㅤ‎ ‎ ‎ . ‎ ‎ . ‎ ‎ .
             <a href="https://yuji.atabook.org/">
   <img src="https://i.postimg.cc/sgNqt3qz/Untitled1569-20260705233519.png" width="110">
 </a>
-                 <br>
-                 <br>
                        <br>
     </td>
   </tr>
