@@ -2,7 +2,7 @@
   <img src="https://komarev.com/ghpvc/?username=rinsagi&color=4D5053&style=flat-square&label=shuake&base=2144&abbreviated=true">
 </p>
 <div align="center">
-<img src="https://i.postimg.cc/J0pMXbFr/Untitled1567-20260705200514.png" width="250">
+<img src="https://i.postimg.cc/J0pMXbFr/Untitled1567-20260705200514.png" width="255">
 <br>
 But I Will Be The One You Needㅤ‎ ‎ ‎ . ‎ ‎ . ‎ ‎ .
 <br>
@@ -61,5 +61,5 @@ But I Will Be The One You Needㅤ‎ ‎ ‎ . ‎ ‎ . ‎ ‎ .
 </table>
 . ‎ ‎ . ‎ ‎ . ㅤ‎ ‎ The Way I Cant Be Without You
 <br>
-<img src="https://i.postimg.cc/sxTsWpLf/Untitled1567-20260705200445.png" width="250">
+<img src="https://i.postimg.cc/sxTsWpLf/Untitled1567-20260705200445.png" width="255">
 
