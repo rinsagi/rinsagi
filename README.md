@@ -34,7 +34,7 @@ But I Will Be The One You Needㅤ. . .
       <br>
     </td>
     <td>
-   𓏼  ˚ㅤ  e𓏬ㅤ ˖ㅤ  ׁ ͚ 
+   𓏼  ˚ ㅤ  e𓏬 ㅤ˖ ㅤ  ׁ ͚ 
       <br>
 text
                  <br>
