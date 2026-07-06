@@ -32,7 +32,7 @@ But I Will Be The One You Needㅤ‎ ‎ ‎ . ‎ ‎ . ‎ ‎ .
 
   <tr>
     <td colspan="2">
-<img src="https://i.postimg.cc/tTfyXhYm/Untitled1570-20260706004535.png" width="245">
+<img src="https://i.postimg.cc/tTfyXhYm/Untitled1570-20260706004535.png" width="240">
     </td>
   </tr>
 
