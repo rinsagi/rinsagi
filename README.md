@@ -14,13 +14,13 @@ But I Will Be The One You Needㅤ‎ ‎ ‎ . ‎ ‎ . ‎ ‎ .
       <br>
       <img src="https://i.postimg.cc/XqNKYbF7/Untitled1568-20260705213915.png" width="35">
         ‎ ᵒᵘ ‎ 𝓡icari
-<br> he any ‎ ‎  🥞 ‎ ‎  16
+<br> 𝒽e 𝒶ny ‎ ‎  🥞 ‎ ‎  𝟙𝟞
       <br>
       ‎▓▒▒░░░░▒▒▓
     <br>
-      persona ﹠ bllk
+      𝐩ersona ﹠ 𝐛llk
     <br>
-      fanatic  ‎‎‎ฅ₍•⩊ •マ
+      fanatic ‎ ‎  ₍•⩊ •マ
       <br>
       ☕ ‎ ‎  afro ‎ ‎latino
       <br>
