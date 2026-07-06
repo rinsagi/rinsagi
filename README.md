@@ -11,10 +11,15 @@ But I Will Be The One You Needㅤ‎ ‎ ‎ . ‎ ‎ . ‎ ‎ .
       <br>
       <img src="https://i.postimg.cc/XqNKYbF7/Untitled1568-20260705213915.png" width="35">
         ‎ ᵒᵘ ‎ 𝓡icari
+<br> he any ‎ ‎ (__) 16
       <br>
+      ‎▓▒▒░░░░▒▒▓
+    <br>
+      persona ﹠ bllk
+    <br>
+      fanatic ‎ ‎ ‎ (______)
       <br>
-      <br>
-      <br>
+      afro latino
       <br>
     </td>
     <td align="center">
