@@ -24,7 +24,7 @@ But I Will Be The One You Needㅤ. . .
 
   <tr>
     <td colspan="2">
-      Long Box
+      Long Box ouuuuuuuuuu shi
     </td>
   </tr>
 
@@ -34,7 +34,7 @@ But I Will Be The One You Needㅤ. . .
       <br>
     </td>
     <td>
-   𓏼 ‎ ˚ ‎ ‎ ‎ e𓏬 ‎ ‎ ‎ ˖ ‎ ‎ ‎ ׁ ͚ 
+   𓏼 ‎ ˚ ‎ ‎ ‎ e𓏬 ‎ ‎ ‎‎  ˖ ‎ ‎ ‎‎  ׁ ͚  
       <br>
 text
                  <br>
