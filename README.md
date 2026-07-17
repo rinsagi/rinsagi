@@ -68,5 +68,5 @@ But 𝐈 Will Be The One 𝐘𝐨𝐮 Need ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎. ‎ 
 <br>
 <br>
 <br>
-THANK YEW FOR THIS WHISPER IM SORRY I MISSED IT OH Y GOD THANK YEW i feel rlly bad so ima js put u right here ok......... thank yew :(
+THANK YEW FOR THIS WHISPER IM SORRY I MISSED IT OH Y GOD THANK YEW i feel rlly bad so ima js put u right here ok......... thank yew mwaa:(
 <img src="https://i.postimg.cc/RZH2sMhV/Screenshot-2026-07-17-151203.png" width="270">
