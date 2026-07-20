@@ -67,6 +67,12 @@ But 𝐈 Will Be The One 𝐘𝐨𝐮 Need ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎. ‎ 
 <br>
 <br>
 <br>
-<br>
+
 THANK YEW FOR THIS WHISPER IM SORRY I MISSED IT OH Y GOD THANK YEW i feel rlly bad so ima js put u right here ok......... thank yew mwaa:(
 <img src="https://i.postimg.cc/RZH2sMhV/Screenshot-2026-07-17-151203.png" width="270">
+<br>
+<br>
+<br>
+<br>
+<img src="https://i.postimg.cc/pVQMSZL0/Screenshot-2026-07-19-201722.png" width="270">
+one of the few gimmmicks that actually made my tail wag and shit thank yew so much we shoul be moots:3 i wish strawpage had a reply system bleghh ty MWA ill prolly make a rentry for them soon eye ball emojis TY EVERYONE WHO LEAVES A MESSAGE /DRAWING I PROMSE ILL HAVE A SPOT TO PUT EVERYTHING SOONnn
