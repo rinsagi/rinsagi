@@ -76,3 +76,10 @@ THANK YEW FOR THIS WHISPER IM SORRY I MISSED IT OH Y GOD THANK YEW i feel rlly b
 <br>
 <img src="https://i.postimg.cc/pVQMSZL0/Screenshot-2026-07-19-201722.png" width="270">
 one of the few gimmmicks that actually made my tail wag and shit thank yew so much we shoul be moots:3 i wish strawpage had a reply system bleghh ty MWA ill prolly make a rentry for them soon eye ball emojis TY EVERYONE WHO LEAVES A MESSAGE /DRAWING I PROMSE ILL HAVE A SPOT TO PUT EVERYTHING SOONnn
+
+<br>
+<br>
+<br>
+<br>
+<img src="https://i.postimg.cc/jSCJkfS1/Screenshot-2026-07-22-210728.png" width="270">
+TY KATARA OG im so sorry i missed this :( mwa! u r cool like persona5 wags my tail
