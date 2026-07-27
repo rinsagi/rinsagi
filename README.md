@@ -1,4 +1,8 @@
 <p align="center">
+
+<br>
+everyone say hi to my mijo  @STRIDER-STYLE 
+  <br>
   <img src="https://komarev.com/ghpvc/?username=rinsagi&color=4D5053&style=flat-square&label=shuake&base=2144&abbreviated=true">
 </p>
 <div align="center">
