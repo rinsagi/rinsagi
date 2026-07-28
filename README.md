@@ -1,7 +1,7 @@
 <p align="center">
 
 <br>
-everyone say hi to my mijo  @STRIDER-STYLE]
+everyone say hi to my mijo  <a href="https://github.com/STRIDER-STYLE">@STRIDER-STYLE</a>
   <br>
   <img src="https://komarev.com/ghpvc/?username=rinsagi&color=4D5053&style=flat-square&label=shuake&base=2144&abbreviated=true">
 </p>
