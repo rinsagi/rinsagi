@@ -91,7 +91,8 @@ i rarely write dnis and stuff because i feel like everyone should just have comm
     <br>
   <br>
   i dont like ppl who joke abt things they cant reclaim/do not understand (example: minority struggles)
-    <br>
+ <br>
+<br>
   i dont like pedophiles
   <br>
   <br>
@@ -104,7 +105,7 @@ i rarely write dnis and stuff because i feel like everyone should just have comm
   i dont like loli/shota wtv tf theyre called
     <br>
   <br>
-  i dont mind overly sensitive people but it can cuase issues (i make alot of jokes i can reclaim) on this note know that i dont need ttgs ^_^ i wont be mad if u use them on me obvv its jsut pointless ok
+  i dont mind overly sensitive people but it can cause issues (i make alot of jokes i can reclaim) on this note ..know that i dont need ttgs ^_^ i wont be mad if u use them on me obvv its jsut pointless ok
     <br>
   <br>
   i am 16 turning 17 in january, 15-18 ish interactions r great, other ages try to limit or smth idk js be mindful of my age idc and if we r already friends know i lav u and obv ik ur not a weirdo #mwa
@@ -113,7 +114,8 @@ i rarely write dnis and stuff because i feel like everyone should just have comm
   i do not care what ppl do/play in their free time aslong as its not some crazy ass shit like super-rape-brothers64 extremely vulgar comment but i have no other way to put this (the whole point is that idc if u play hoyo games or smth like that obv lol) and if u r problematic i will js block u if i ever find out sprry :/
   <br>
   <br>
-  i do not mind having meaningful convos abt dark topics , u do not have to censor anything with mei will not get triggered
+  i do not mind having meaningful convos abt dark topics , u do not have to censor anything with me ii will not get triggered!!
+    <br>
     <br>
     i try to match ppls humor/personality because i understand mine can come off strong so dw i do not mind accommodating for anyone!
    <br>
