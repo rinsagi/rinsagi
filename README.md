@@ -79,3 +79,27 @@ ask 2 b here dont be shy:3
     </td>
   </tr>
 </table>
+<details>
+<summary>basic criteria</summary>
+i rarely write dnis and stuff because i feel like everyone should just have common sense but..
+    <br>
+  i dont like dark/proshippers
+  <br>
+  i dont like racists
+    <br>
+  i dont like ppl who joke abt things they cant reclaim/do not understand (example: minority struggles)
+    <br>
+  i dont like pedophiles
+    <br>
+  i dont like loli/shota wtv tf theyre called
+    <br>
+  i dont mind overly sensitive people but it can cuase issues (i make alot of jokes i can reclaim)
+    <br>
+  i am 16 turning 17 in january, 15-18 ish interactions r great, other ages try to limit or smth idk js be mindful of my age idc
+    <br>
+  i do not care what ppl do/play in their free time aslong as its not some crazy ass shit like super-rape-brothers64 extremely vulgar comment but i have no other way to put this (the whole point is that idc if u play hoyo games or smth like that obv lol) and if u r problematic i will js block u if i ever find out sprry :/
+</details>
+  <br>
+  i do not mind having meaningful convos abt dark topics , u do not have to censor anything with mei will not get triggered
+    <br>
+    i try to match ppls humor/personality because i understand mine can come off strong so dw i do not mind accommodating for anyone!
