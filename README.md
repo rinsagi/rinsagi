@@ -104,10 +104,10 @@ i rarely write dnis and stuff because i feel like everyone should just have comm
   i dont like loli/shota wtv tf theyre called
     <br>
   <br>
-  i dont mind overly sensitive people but it can cuase issues (i make alot of jokes i can reclaim)
+  i dont mind overly sensitive people but it can cuase issues (i make alot of jokes i can reclaim) on this note know that i dont need ttgs ^_^ i wont be mad if u use them on me obvv its jsut pointless ok
     <br>
   <br>
-  i am 16 turning 17 in january, 15-18 ish interactions r great, other ages try to limit or smth idk js be mindful of my age idc
+  i am 16 turning 17 in january, 15-18 ish interactions r great, other ages try to limit or smth idk js be mindful of my age idc and if we r already friends know i lav u and obv ik ur not a weirdo #mwa
     <br>
   <br>
   i do not care what ppl do/play in their free time aslong as its not some crazy ass shit like super-rape-brothers64 extremely vulgar comment but i have no other way to put this (the whole point is that idc if u play hoyo games or smth like that obv lol) and if u r problematic i will js block u if i ever find out sprry :/
