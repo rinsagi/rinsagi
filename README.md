@@ -91,7 +91,9 @@ i rarely write dnis and stuff because i feel like everyone should just have comm
     <br>
   i dont like pedophiles
   <br>
-  i dont like homophobes/transphobes yes this include ppl who hate on microlabels/neos/xenos whatev u r weird and unloved go suck off a hetcis weirdo
+  i dont like homophobes/transphobes yes this includes ppl who hate on microlabels/neos/xenos whatev u r an oddball and unloved go suck off a hetcis weirdo let ppl label themselves whatev they want aslong as its not problematic LOL
+  <br>
+  i dont like that paraphilia shit stop being disgusting and stop chasing minors and animals
     <br>
   i dont like loli/shota wtv tf theyre called
     <br>
