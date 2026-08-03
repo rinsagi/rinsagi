@@ -90,6 +90,8 @@ i rarely write dnis and stuff because i feel like everyone should just have comm
   i dont like ppl who joke abt things they cant reclaim/do not understand (example: minority struggles)
     <br>
   i dont like pedophiles
+  <br>
+  i dont like homophobes/transphobes yes this include ppl who hate on microlabels/neos/xenos whatev u r weird and unloved go suck off a hetcis weirdo
     <br>
   i dont like loli/shota wtv tf theyre called
     <br>
