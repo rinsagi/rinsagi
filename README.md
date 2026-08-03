@@ -107,6 +107,8 @@ i rarely write dnis and stuff because i feel like everyone should just have comm
     <br>
     i try to match ppls humor/personality because i understand mine can come off strong so dw i do not mind accommodating for anyone!
    <br>
+  i dont mind yumeshippers at all unless they r coocoo crazy and tell doubles to die or smth yall weird asl
+    <br>
    every joke i make is reclaimable
      <br>
    every joke i make is reclaimable
