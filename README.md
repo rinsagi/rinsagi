@@ -102,4 +102,20 @@ i rarely write dnis and stuff because i feel like everyone should just have comm
   i do not mind having meaningful convos abt dark topics , u do not have to censor anything with mei will not get triggered
     <br>
     i try to match ppls humor/personality because i understand mine can come off strong so dw i do not mind accommodating for anyone!
-</details>
+   <br>
+   every joke i make is reclaimable
+     <br>
+   every joke i make is reclaimable
+     <br>
+   every joke i make is reclaimable
+     <br>
+   every joke i make is reclaimable
+     <br>
+   every joke i make is reclaimable
+     <br>
+   every joke i make is reclaimable
+     <br>
+   every joke i make is reclaimable
+     <br>
+     100th time saying this stop nitpicking me u dont know anything abt me, my life, or my trauma LOL weirdo
+     </details>
