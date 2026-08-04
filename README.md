@@ -40,6 +40,9 @@ ask 2 b here dont be shy:3 <br>
   ty awards and friends who<br>
   nominate me for those awards<br>
   because u know im very lazy<br>
+  <a href="https://github.com/ponychievements" target="_blank">ponychievements</a>
+<a href="https://github.com/pt-fashion" target="_blank">pt-fashion</a>
+<a href="https://github.com/title-town" target="_blank">title-town</a>
 </details>
     </td>
   </tr>
