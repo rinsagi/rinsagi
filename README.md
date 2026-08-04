@@ -36,7 +36,11 @@ moots ++++ more ofc!! <br>
 < salmonroe, okngsgc, <br> 
 ‎ ‎pgcs, prsgc, fmgc 3 ‎<br>
 no specific order <br>
-ask 2 b here dont be shy:3 
+ask 2 b here dont be shy:3 <br>
+  ty awards and friends who<br>
+  nominate me for those awards<br>
+  because u know im very lazy<br>
+[ponychievements](https://github.com/ponychievements) [pt-fashion](https://github.com/pt-fashion) [title-town](https://github.com/title-town)
 </details>
     </td>
   </tr>
