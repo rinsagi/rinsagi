@@ -13,7 +13,10 @@
      <br>
      ‎ afro-latino ㅤ 16‎ ‎ ‎ ‎ 
      <br>
-     omg im sick of this
+     i like atlus games
+     <br>
+     cod fn rblx and<br>
+     zombie games<br>
     </td>
   </tr>
 
