@@ -18,7 +18,7 @@
 man i am sick of this gh
 <br>
 i like cod games, atlus games, fortnite, roblox, zombie games, survival games, basically js shooting games, resident evil series,etc etc i play anything and everything and i like playing with my friends and streaming games to my friends on vc so lmk plspls i lov hanging out with everyone :3 and if u wanna play games with me ALSO LMK!! ill give u my steam and buy whatever game u want me to ^_^ and if u don’t hav a game i can get it for u ! i love gaming with ppl :33333
-<details>
+</details>
     </td>
   </tr>
 
