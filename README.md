@@ -1,4 +1,7 @@
 <div align="center">
+ 
+ <img src="https://i.postimg.cc/2jxsfLCw/Untitled1655-20260805135348.png" width = "200"> 
+  <br>
 <img src="https://i.postimg.cc/L55NTp2X/IMG-9235-(1).gif" width = "338"> <img src="https://hits.sh/github.com/rinsagi.svg?label=shuakelings&extraCount=4670&color=222275&labelColor=20053C">
   <br>
 <br> 
