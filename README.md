@@ -2,9 +2,6 @@
 
 <div align="center">
 
-<img src="https://i.postimg.cc/NFhM0hqf/IMG-9933.jpg" width = "338">
-<br>
-
 <img src="https://i.postimg.cc/QtLp8ZXV/IMG-9652.jpg" height = "50">
 
 <img src="https://i.postimg.cc/C5Sk8CBH/IMG-9647.jpg" height = "50">
@@ -167,3 +164,4 @@ i rarely write dnis and stuff because i feel like everyone should just have comm
      </details>
       <img src="https://i.postimg.cc/2jxsfLCw/Untitled1655-20260805135348.png" width = "200"> 
   <br>
+<img src="https://i.postimg.cc/NFhM0hqf/IMG-9933.jpg" width = "338">
