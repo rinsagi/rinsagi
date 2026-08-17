@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src=“https://i.postimg.cc/NFhM0hqf/IMG-9933.jpg” width = “100”>
+<img src="https://i.postimg.cc/NFhM0hqf/IMG-9933.jpg" width = "338">
 
 <img src="https://i.postimg.cc/QtLp8ZXV/IMG-9652.jpg" height = "50">
 
