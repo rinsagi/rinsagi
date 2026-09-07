@@ -82,6 +82,8 @@ ask 2 b here dont be shy:3 <br>
   <img src="https://i.postimg.cc/s2J4DRMb/Untitled1643-20260801145202.png" width="51"">
 </a>‎
   ‎  ‎  ‎  ‎  ‎ <img src="https://i.postimg.cc/gcnsWjWJ/IMG-9317.gif" width="191" height="65">
+  <br>
+  <a href="https://fluffle.cc/purrsona">awhhh fluffle shin made awhhhhhhhhhhh ty shin awhh</a>
 <br>
 <br>
 <br>
