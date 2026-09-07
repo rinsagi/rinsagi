@@ -46,7 +46,7 @@ i like cod games, atlus games, fortnite, roblox, zombie games, survival games, b
     <td>
       <details>
 <summary>i ♡ my friends</summary>
-vee jaden zac void blaire<br>
+vee jaden zac void blaire shin eyesemoji <br>
 ryomijo ashtonmijp<br>
 valenmijo arsènemijo<br>
 moots ++++ more ofc!! <br> 
